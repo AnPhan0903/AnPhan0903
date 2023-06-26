@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Phan Bảo Ân
+- 👀 I’m interested in the field of technology, astronomy, fossils
+- 🌱 I’m currently learning Sư Phạm Thành Phố Hồ Chí Minh
+- 💞️ I’m looking to collaborate on information technology
+- 📫 How to reach me phanan0090320002@gmail.com
